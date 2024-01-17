@@ -1,1 +1,1 @@
-I have completed the tasks which was metioned in the file.
+I have completed the tasks which was mentioned in the file.
